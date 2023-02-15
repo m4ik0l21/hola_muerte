@@ -1,2 +1,2 @@
-# hola_muerte
-vida la vida... hasta donde se pueda...
+adios muerte
+gracias nueva oportunidad
